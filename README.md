@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @RageStorm76
+- 👀 I’m interested in Programming,Gaming,Art
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on nothing, i work alone
+- 📫 How to reach me Discord RageStorm76#5250
